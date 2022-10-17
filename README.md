@@ -1,1 +1,0 @@
-# leadyquasar.github.io
